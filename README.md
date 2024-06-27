@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning R, Python (well, I am just a girl 🎀 and a beginner)
 - 📫 How to reach me @inaya__02._ on instagram or rubinaalmas610@gmail.com 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I will edit that later. 
 
 <!---
 rubinaalmas/rubinaalmas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
