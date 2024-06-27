@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @rubinaalmas
-- 👀 I’m interested in paintng, adventures, and working out
-- 🌱 I’m currently learning R, Python (well, I am just a girl 🎀 and a beginner)
+- 🌱 I’m currently torturing myself with R, Python (well, I am just a girl 🎀 and a beginner)
 - 📫 How to reach me @inaya__02._ on instagram or rubinaalmas610@gmail.com 
 - 😄 Pronouns: she/her
 
